@@ -3,7 +3,7 @@ layout: page
 title: Klas 3A
 subtitle: Alle links voor 3A
 ---
-### Week 1 (20/4 tem 24/4)
+### Week 1 (van 20/4 tot en met 24/4)
 
 #### Taak 4: Werkwoorden
 
