@@ -24,7 +24,7 @@ Samen maken: [hier](https://www.loom.com/share/4b301842b04c464abc3b542473799764)
 Uitleg: [hier](https://www.loom.com/share/887caa04ab264420ace9125e1e7c8ac4)  
 
 #### Taak 15: Grote tafels
-Uitleg: [hier](https://www.loom.com/share/284caad1af2140ee8ca40945dafa4464) en [link](https://www.xnapda.be/filmpjes/3de-leerjaar/de-tekens-en)   
+Uitleg: [hier](https://www.loom.com/share/284caad1af2140ee8ca40945dafa4464) en [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/de-tekens-en)   
 Samen maken: [hier](https://www.loom.com/share/31014ddbcaa340ada202d0625c41f7ca)
 
 #### Taak 17: Breuke, herhaling
