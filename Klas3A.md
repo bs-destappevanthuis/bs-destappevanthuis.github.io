@@ -3,7 +3,7 @@ layout: page
 title: Klas 3A
 subtitle: Alle links voor 3A
 ---
-> Hoe werken met de takenfiche? Het antwoord [hier](https://www.loom.com/share/1d1dd13b5fa74721b959a3686669588f)
+> Hoe werken met de takenfiche? Het antwoord [hier](https://www.loom.com/share/1d1dd13b5fa74721b959a3686669588f).
 
 
 ### Week 1 (van 20/4 tot en met 24/4)
