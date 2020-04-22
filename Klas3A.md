@@ -31,5 +31,3 @@ Samen maken: [hier](https://www.loom.com/share/31014ddbcaa340ada202d0625c41f7ca)
 
 #### Taak 17: Breuken, herhaling
 Uitleg: [hier](https://www.loom.com/share/3811eb0002fc422f9124e3f9a5c24c04){:target="_blank"}  
-
-Filmpje [hier](https://CloudStation-BJ-IT.fr.quickconnect.to/vs/sharing/h0nQJRsq#!aG9tZV92aWRlby0yOA==)
