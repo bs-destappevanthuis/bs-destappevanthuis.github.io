@@ -4,7 +4,9 @@ title: Een virtueel babbeltje
 tag: [3A, Week 2]
 ---
 
-Juf Tanja wil jullie graag nog eens horen. Dit gaan we testen via Jitsi, we voorzien 3 probeer-momenten:
+Juf Tanja wil jullie graag nog eens horen. Dat gaan we testen.
+
+Dit gaan we doen via Jitsi, we voorzien 3 probeer-momenten:
 
 Dinsdag 28/4/2020 om 11u
 Woensdag 29/4/2020 om 11u
