@@ -12,4 +12,4 @@ Donderdag 30/4/2020 om 11u
 
 We gaan dit proberen via deze [link](https://meet.jit.si/DeStappe3A)
 
-> Voor de ouders, voeg deze afspraak toe aan de agenda via deze [link](files/babbelen.ics)
+> Voor de ouders, voeg deze afspraak toe aan de agenda via deze [link](https://www.dropbox.com/s/v7c0it1lodr6ayd/Babbelen.ics?dl=0)
