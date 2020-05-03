@@ -30,7 +30,7 @@ Uitleg: [hier](https://www.loom.com/share/284caad1af2140ee8ca40945dafa4464)
 Samen maken: [hier](https://www.loom.com/share/31014ddbcaa340ada202d0625c41f7ca)
 
 #### Taak 17: Breuken, herhaling
-Uitleg: [hier](https://www.loom.com/share/3811eb0002fc422f9124e3f9a5c24c04) 
+Uitleg: [hier](https://www.loom.com/share/3811eb0002fc422f9124e3f9a5c24c04)
 
 ### Week 2 (van 27/4 tot en met 30/4)
 
@@ -62,3 +62,55 @@ Uitleg + samen maken: [hier](https://www.loom.com/share/a3ada643f930451f9d12cab8
 
 #### Taak 13: Getallen tot 1000
 Herhaling even en oneven getallen + oefeningen samen maken: [hier](https://www.loom.com/share/19c59d0d945c469e9816009854ed4cb8)
+
+### Week 2 (van 4/5 tot en met 8/5)
+
+De taken voor de derde week in 3A.
+
+> De juf overloopt de takenfiche [hier](https://www.loom.com/share/5fb26695a06c44be86a9d15c936b537a)
+
+#### Taak 4: Taalbeschouwing - werkwoorden tegenwoordige en verleden tijd
+Uitleg: [hier](https://www.xnapda.be/filmpjes/4de-leerjaar/werkwoorden-de-tegenwoordige-tijd) en [hier](https://www.xnapda.be/filmpjes/4de-leerjaar/werkwoorden-de-verleden-tijd)  
+Samen maken: [hier](https://www.loom.com/share/8ad493d1522245c3bc65f63177422625)
+
+#### Taak 6: Hoofdletters en leestekens
+Uitleg: [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/hoofdletters)  
+
+#### Taak 7: Woordpakket 21 oefenen
+Uitleg: [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/ei-ij)  
+
+#### Taak 8: Mama’s opa - Verhaaltje beluisteren en vragen oplossen
+Luistertekst: [hier](https://www.youtube.com/watch?v=MJ9s60QZxtM)  
+
+#### Taak 9: Delen van de plant
+Uitleg: [hier](https://www.youtube.com/watch?v=MvuVXDG1dus)  
+
+#### Taak 10: Getallen - veelvouden en KGV
+**Nieuwe leerstof**, uitleg: [hier](https://www.loom.com/share/1335b6d79655413d93634c053bbef058)  
+
+#### Taak 11: Getallen - negatieve getallen
+Oefening 1 - Filmpje 1, herhaling functies van getallen: [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/functies-van-getallen)  
+Oefening 2 - Filmpje 2, herhaling negatieve getallen: [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/negatieve-getallen-temperatuur)  
+Oefening 3 - Filmpje 3, afronden: [hier](https://www.loom.com/share/284caad1af2140ee8ca40945dafa4464)
+
+#### Taak 12: Cijferen - Staartdelingen les 1 - *Nieuwe leerstof (Moeilijk!)*
+**Nieuwe leerstof** Uitleg: [hier](https://www.loom.com/share/00feeefab1aa432ca56ab77eea098723)  
+**Nieuwe leerstof** Samen maken: [hier](https://www.loom.com/share/21a65e71c3034797a8315220164fcdd1)
+
+#### Taak 13: Kloklezen tot op 1 minuut: analoog
+Samen maken: [hier](https://www.loom.com/share/d472e654998a4bddae9dc455acddd1eb)
+
+#### Taak 14: Hoofdrekenen - optellen met brug bij de T
+**Nieuwe leerstof** Uitleg: [hier](https://www.loom.com/share/964885b8cba04a6cb9a9316199d95c71)  
+**Nieuwe leerstof** Samen maken: [hier](https://www.loom.com/share/2b330323a04a4c0fb571adb3869a588e)
+
+#### Taak 15: Grote tafels - delingen met haakjes
+**Nieuwe leerstof** Uitleg: [hier](https://www.loom.com/share/574acbc451914180b5dcd513191886b1)
+
+#### Taak 16: Delen met rest
+**Nieuwe leerstof voor 3B** Uitleg: [hier](https://www.youtube.com/watch?v=ap8bMp4Uf2M&feature=youtu.be&fbclid=IwAR2Fd1J0MpSnP0Y_auwtxUarYQbONUj4MWghSGctrV5bSf77xNCMJkkc0oQ)
+
+#### Taak 17: Kaartje moederdag (Geheim!)
+Geheim filmpje: [hier](https://www.youtube.com/watch?v=qTSVZDCoPME)
+
+> De complete verzameling links voor 3A kan je [hier](/Klas3A) terugvinden.
