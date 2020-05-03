@@ -8,7 +8,7 @@ Juf Tanja wil jullie graag nog eens horen.
 
 Dit gaan we doen via Jitsi, we voorzien 2 momenten:
 
-Maandag 04/05/2020 om 11u
+Maandag 04/05/2020 om 11u  
 Donderdag 07/05/2020 om 11u
 
 We gaan dit doen via deze [link](https://meet.jit.si/DeStappe3A)
