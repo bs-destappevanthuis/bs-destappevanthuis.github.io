@@ -112,3 +112,43 @@ Samen maken: [hier](https://www.loom.com/share/d472e654998a4bddae9dc455acddd1eb)
 
 #### Taak 17: Kaartje moederdag (Geheim!)
 Geheim filmpje: [hier](https://www.youtube.com/watch?v=qTSVZDCoPME)
+
+### Week 4 (van 11/5 tot en met 15/5)  
+
+#### Taak 4: Taalbeschouwing - werkwoorden enkelvoud/meervoud
+**Nieuwe leerstof**, uitleg: [hier](https://www.loom.com/share/5dae87b857e747e08a2c9ff0fd3baa79)  
+**Nieuwe leerstof**, samen maken: [hier](https://www.loom.com/share/dc717c56c17b4d0b86afeca87e9f1fd4)
+
+#### Taak 8: Karrewiet kijken en woordspin maken
+Karrewiet op Internet: [hier](https://www.ketnet.be/kijken/karrewiet)  
+
+#### Taak 9: Papier: Hoe wordt papier gemaakt?
+Filmpje: [hier](https://schooltv.nl/video/papier-hoe-wordt-het-eigenlijk-gemaakt/#q=papier)  
+
+#### Taak 10: Driehoeken een naam geven.
+**Nieuwe leerstof**, uitleg: [hier](https://www.loom.com/share/6abb50b530bb4971930583a9a2d7dc24)  
+
+#### Taak 11: Grootste Gemeenschappelijke Deler
+**Nieuwe leerstof**, uitleg: [hier](https://www.loom.com/share/0b7a40541a2541f2848208f31e740a30)  
+
+#### Taak 12: Meten - klokboekje, kwart voor, kwart na
+**Nieuwe leerstof**, uitleg: [hier](https://www.loom.com/share/814f4579c5ae4b1fa08adf5d1313e789)  
+
+#### Taak 13: Cijferen - staartdelingen les 2
+**Nieuwe leerstof**, uitleg: [hier](https://www.loom.com/share/5f62a878cb72407bad1d61a771f23095)  
+**Nieuwe leerstof**, samen maken: [hier](https://www.loom.com/share/bf8ebeaa483445e6b2cf02551e38ec92)
+
+#### Taak 14: Hoofdrekenen - aftrekken met brug bij de T
+**Nieuwe leerstof**, uitleg: [hier](https://www.loom.com/share/a67fe7ce6c934b0cb6522199e961f837)  
+**Nieuwe leerstof**, samen maken: [hier](https://www.loom.com/share/e325f12aace64e63a12bbe0d8fa0c511)
+
+#### Taak 15: Grote tafels - delingen
+**Nieuwe leerstof**, uitleg: [hier](https://www.loom.com/share/624f15343fce46a49e56579137604275)  
+**Nieuwe leerstof**, samen maken: [hier](https://www.loom.com/share/e57e4fbdace94e6780a2fb860dcc8807)
+
+#### Taak 16: Meetkunde - coördinaten
+Herhaling: [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/coordinaten)  
+Spelletje: [hier](http://gofile.me/3BKW6/DWQcQD1xL)  
+
+#### Taak 17: Muziek - Mijn vader is een timmerman
+Filmpje: [hier](https://www.youtube.com/watch?v=Rb3IchfRAn0)
