@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Een virtueel babbeltje en spelletje
-tag: [3A, Week 4]
+tag: [3A, Week 5]
 ---
 
 Juf Tanja wil jullie graag ook deze week nog eens horen.
