@@ -152,3 +152,78 @@ Spelletje: [hier](http://gofile.me/3BKW6/DWQcQD1xL)
 
 #### Taak 17: Muziek - Mijn vader is een timmerman
 Filmpje: [hier](https://www.youtube.com/watch?v=Rb3IchfRAn0)
+
+### Week 5 (van 18/5 tot en met 20/5)  
+
+#### Taak 4: Taalbeschouwing - herhaling werkwoorden 1
+Uitleg: [hier](https://www.loom.com/share/3716840030bd4ea4a921f52b7234a042)  
+Extra Uitleg: [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/infinitief), [hier](https://www.xnapda.be/filmpjes/4de-leerjaar/de-stam-van-een-werkwoord) en [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/werkwoord)  
+Samen maken: [hier](https://www.loom.com/share/748a3fb1bf4f4fb2a5711614741dae12)
+
+#### Taak 7: Staartdelingen les 3
+**Nieuwe leerstof**, uitleg: [hier](https://www.loom.com/share/98660d09570340fea0d37a120fe67c32)  
+**Nieuwe leerstof**, samen maken: [hier](https://www.loom.com/share/fc7d2143bb5f494a93b4b93f4f1291be)
+
+#### Taak 8: Hoofdrekenen - optellingen brug E en T
+**Nieuwe leerstof**, uitleg: [hier](https://www.loom.com/share/c01925925953451380e4f4d72a500556)  
+**Nieuwe leerstof**, samen maken: [hier](https://www.loom.com/share/d22b87921b0b4c239ab59fed6326896c)
+
+#### Taak 9: Kloklezen tot op 1 minuut
+Herhaling: [hier](https://www.loom.com/share/814f4579c5ae4b1fa08adf5d1313e789)   
+Samen maken: [hier](https://www.loom.com/share/5b11057a906142b78d358781ad6ae581)
+
+#### Taak 10: Grote tafels - delingen met haken
+**Nieuwe leerstof**, uitleg: [hier](https://www.loom.com/share/c9d5917cec3847e98f9ed1188bdc0b0f)  
+**Nieuwe leerstof**, samen maken: [hier](https://www.loom.com/share/3f45aa538df9421db4d8624fa396276c)  
+
+#### Taak 11: Meetkunde - driehoeken benoemen
+Herhaling benoemen volgens hoeken: [hier](https://www.loom.com/share/887caa04ab264420ace9125e1e7c8ac4)   
+Herhaling benoemen volgens zijden: [hier](https://www.loom.com/share/6abb50b530bb4971930583a9a2d7dc24)
+
+### Week 6 (van 25/5 tot en met 29/5)  
+
+#### Taak 4: Taalbeschouwing - herhaling werkwoorden 2
+Uitleg: [hier](https://www.loom.com/share/3716840030bd4ea4a921f52b7234a042)  
+Extra uitleg: [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/infinitief), [hier](https://www.xnapda.be/filmpjes/4de-leerjaar/de-stam-van-een-werkwoord) en [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/werkwoord)  
+Samen maken: [hier](https://www.loom.com/share/330e79b99baf47558a017350a33bb6ad)
+
+#### Taak 6: Ja/nee vragen stellen
+Uitleg: [hier](https://www.youtube.com/watch?v=a-ixJcpf1Tw)  
+
+#### Taak 7: Woordpakket 24 oefenen
+Uitleg: [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/verdubbelen), [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/verenkelen) en [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/verenkelen-en-verdubbelen)
+
+#### Taak 8: Luisteren - Nordin en zijn buurvrouw
+Luistertekst: [hier](https://www.loom.com/share/3c10fcc95af6499abead07c507eccfdb)  
+
+#### Taak 9: Karrewiet kijken en woordspin maken
+Karrewiet op Internet: [hier](https://www.ketnet.be/kijken/karrewiet)
+
+#### Taak 10: Cijferen - staartdelingen les 4
+**Nieuwe leerstof**, uitleg: [hier](https://www.loom.com/share/3f8b3475d25b4fd58e9628dcebaf94b5)  
+**Nieuwe leerstof**, samen maken: [hier](https://www.loom.com/share/1c5854d23a90485a86982b4dd7e031e3)
+
+#### Taak 11: Hoofdrekenen HTE-HTE brug T en E
+**Nieuwe leerstof**, uitleg: [hier](https://www.loom.com/share/232c12e5c83a47919901feb03b057086)  
+**Nieuwe leerstof**, samen maken: [hier](https://www.loom.com/share/1a55980e050745e78ddf646dbfac80cc)  
+
+#### Taak 12: Kloklezen tot op 1 minuut - analoog, uur,half uur, kwart voor, kwart na
+Herhaling: [hier](https://www.loom.com/share/2fee25c3039d4843a4ccb1c67cbe5c1f?fbclid=IwAR1ho6b6zewpG6iiNaDKUV7PF5XTxtO9hUZyu_SiuHf6no1VZkKoBPCd2xI)   
+Samen maken: [hier](https://www.loom.com/share/ee47cc220a9b443db98211811ed836df)
+
+#### Taak 13: Grote tafels - herhaling vermenigvuldigen en delen met haakjes
+Samen maken: [hier](https://www.loom.com/share/742f1ba0f94e47e98871a18e35e40e85)  
+
+#### Taak 14: W25L1 getallen, herhaling
+Uitleg: [hier](https://www.loom.com/share/284caad1af2140ee8ca40945dafa4464), [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/even-en-oneven), [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/getallen-tot-1-000), [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/de-helft) en [hier](https://www.xnapda.be/filmpjes/3de-leerjaar/het-dubbel)
+
+#### Taak 15: Herhaling inhoudsmaten en gewicht
+Herhaling: [hier](https://www.loom.com/share/51ad4451ca644f77902c5695029f1562)   
+Extra uitleg: [hier](https://www.xnapda.be/filmpjes/5de-leerjaar/maateenheden-omzetten-met-een-tabel)
+
+#### Taak 16: Cijferen - herhaling optellen en aftrekken
+Herhaling uitleg optellen: [hier](https://www.youtube.com/watch?v=_gxMHwNKjRY&feature=youtu.be&fbclid=IwAR3KMVctoLNXjPI3PkOJKN2f0x2KG3nRBKS4eUCuvrXuwzmtDomYeBkKZoA)   
+Herhaling uitleg aftrekken: [hier](https://www.youtube.com/watch?v=BMPkPfrf6Fg)
+
+#### Taak 17: Muziek - Ik wil taart
+Filmpje doewap: [hier](https://www.youtube.com/watch?v=EO2VmimB-TU)
