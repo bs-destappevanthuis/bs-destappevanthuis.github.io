@@ -286,3 +286,22 @@ Herhaling: [hier](https://www.loom.com/share/61d79ebe35844479be4e95e87d83c333)
 #### Taak 16: Herhaling vermenigvuldigen en delen tot 1000
 Herhaling: [hier](https://www.loom.com/share/693ac3cee3a648299496cdb36c984c6d)   
 Hoe moeten de maaloefeninge? Dat kan je [hier](https://www.loom.com/share/a3ada643f930451f9d12cab8d80ce32d) zien.
+
+### Week 9 (18/6 tot 24/6)
+
+#### Taak 6: Spelen met zinnen - Wat doet hij/zij/het?
+Uitleg: [hier](https://www.youtube.com/watch?v=gAYAWhVQSy4)
+
+#### Taak 8: Luisteren - jarig!
+Verhaal: [hier](https://www.loom.com/share/f6bd0a370982430eb98e672595cd150a)   
+
+#### Taak 10: Cijferen - Staartdelingen: H<d
+**Nieuwe leerstof**, uitleg: [hier](https://www.loom.com/share/d8368b69094c4c46b976725ed8df64a4)  
+**Nieuwe leerstof**, samen maken: [hier](https://www.loom.com/share/373167cb172f494987d12e8d5b5323a6)
+
+#### Taak 11: Hoofdrekenen - Herhaling + en –
+Samen maken: [hier](https://www.loom.com/share/ee0613710e184137a4bfbfc0b9c09484)   
+Rekentrucjes [hier](https://www.loom.com/share/bd47ddc074d44456848556d9642d5e68)
+
+#### Taak 12: Herhaling breuken W28L1
+Filmpje bij oef 4 en 6: [hier](https://www.loom.com/share/3811eb0002fc422f9124e3f9a5c24c04)
